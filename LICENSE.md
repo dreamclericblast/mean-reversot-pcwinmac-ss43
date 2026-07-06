@@ -1,4 +1,4 @@
-# 
+# Professionnel mean reversion trading bot préréglages for Mac OS | Premium mean reversion trading bot préréglages for PC Windows. Featuring API d'échange centralisé and pools de liquidité DEX — optimized for maximum performance.
 
 
 
